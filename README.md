@@ -1,1 +1,0 @@
-# arquestr76iyc
